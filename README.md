@@ -1,3 +1,3 @@
 # Self3
-SELFBOT LINE 
-❌ஆণเฟีєՃุ๑இำ❌
+สาย SELFBOT 
+❍Ձთণਫ਼❹ʄທയஆടஷะ
